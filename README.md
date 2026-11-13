@@ -1,1 +1,1 @@
-# janta-moter
+# New-janta-motor-training-school
